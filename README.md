@@ -1,0 +1,1 @@
+training thoughts
